@@ -57,7 +57,8 @@ I specialize in:
 
 - 💼 LinkedIn: linkedin.com/in/salman-aziz-barbhuiya  
 - 📧 Email: salmanwrk009@gmail.com  
-- 🌐 Portfolio: salman-aziz-barbhuiya.lovable.app  
+- 🌐 Portfolio: [salman-aziz-barbhuiya.lovable.app ](https://salman-aziz-barbhuiya.lovable.app/
+) 
 
 ---
 
